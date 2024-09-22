@@ -7,4 +7,4 @@ Fredy Velasquez
 
 ## Video youtube
 
-https://youtu.be/lZLnN_k_z3c
+https://www.youtube.com/watch?v=XBIUI5Ngb_g
